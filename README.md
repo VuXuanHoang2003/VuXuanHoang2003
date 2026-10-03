@@ -1,4 +1,4 @@
-### Hi 👋, VuXuanHoang2003 is in your area 😂
+### Hi 👋, VuXuanHoang2003 is in your area 😂.
 
 ---
 
